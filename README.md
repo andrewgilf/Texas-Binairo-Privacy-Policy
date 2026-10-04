@@ -66,7 +66,7 @@ If this policy changes, the updated version will be posted at this address with 
 
 Questions about this policy or the app:
 
-**pidginization@gmail.com**
+**info@sunriseapplications.com**
 
 Questions about this policy or the app:
 
